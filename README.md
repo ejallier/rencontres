@@ -1,3 +1,0 @@
-##Rencontres scenari
-
-Erwann Jallier
